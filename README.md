@@ -61,4 +61,4 @@
 ---
 
 > ✨ **"Good code solves problems — quietly."**  
-> 🎨 Style: Sim racing • BMW M colors • White / Black • Red & Blue accents
+> 🇪🇸󠁥󠁳󠁰 From the Basque Country and beyond...
